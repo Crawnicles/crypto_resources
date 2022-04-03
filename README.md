@@ -10,6 +10,8 @@ https://glassnode.com/
 
 https://cryptoquant.com/asset/btc
 
+https://www.ar.ca/
+
 Michael Saylor - hope.com
 
 Charles Hoskinson youtube
